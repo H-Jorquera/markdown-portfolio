@@ -1,0 +1,1 @@
+![Parque Nacional Torres del Paine, Chile.](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ce/Torres_del_Paine_y_cuernos_del_Paine%2C_montaje.jpg/1024px-Torres_del_Paine_y_cuernos_del_Paine%2C_montaje.jpg)
